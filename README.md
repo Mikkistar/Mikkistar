@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Mikkistar
+- 👀 I’m interested in crypto and travel
+- 🌱 I’m currently learning the cryptoworld
